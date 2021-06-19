@@ -1,3 +1,3 @@
 # PRO-C51-ORIGAMI-WEBSITE-DESIGN-PART-3
 
-![alt text](https://ibb.co/kq8Nw16)
+![Alt text](PRO-C51-ORIGAMI-WEBSITE-DESIGN-PART-3/image (6).png?raw=true "Title")
